@@ -10,3 +10,5 @@ Meu nome é Caroliny Terço
 ### Você pode entrar em contato comigo 📫
 
 00001124258073sp@al.educacao.sp.gov.br
+
+![]()![image](https://github.com/user-attachments/assets/5a16788c-8e6e-4a35-8ab3-d8148d1f4a82)
